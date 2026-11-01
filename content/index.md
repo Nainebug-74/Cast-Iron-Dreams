@@ -1,6 +1,7 @@
 ---
-title: Template for Knowledge Base Docs Websites
+title: Cast Iron Dreams
 ---
+Welcome to Cast Iron Dreams. My goal is to share my passion for collecting cast iron used for cooking and baking. There are may different types of cast iron pans, some are over a century old and are still being used today. There are many that are sought after and considered rare and valuable to those who collect cast iron. Every collector has their own "unicorn" they dream of finding one day.
 ## The index page
 
 This is the index page (`content/index.md`) of your knowledge base docs. It serves as the home page for your website.
