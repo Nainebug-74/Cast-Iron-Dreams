@@ -1,5 +1,5 @@
-This is your new *vault*.
+# Cast Iron Dreams
 
-Make a note of something, [[create a link]], or try [the Importer](obsidian://show-plugin?id=obsidian-importer)!
+Nov 15, 20261 min read
 
-When you're ready, delete this note and make the vault your own.
+Welcome to Cast Iron Dreams. My goal is to share my passion for collecting cast iron used for cooking and baking. There are may different types of cast iron pans, some are over a century old and are still being used today. There are many that are sought after and considered rare and valuable to those who collect cast iron. Every collector has their own “unicorn” they dream of finding one day.
