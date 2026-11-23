@@ -27,4 +27,4 @@ The family retained ownership of the business until 1952 when it was sold to the
 ![[wagwold-mark.png]]
 
 
-![[Pasted image 20261122184942.png]]
+![[Wardway.png]]

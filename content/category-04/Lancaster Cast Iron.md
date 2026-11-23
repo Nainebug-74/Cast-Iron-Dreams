@@ -17,4 +17,4 @@ Lancaster Cast Iron started in 2018, founded by Mark Longnecker and Brandon Moor
 3. Hand carved wooden utensils, cutting boards, and hand crafted leather goods are part of their charm when you shop online.
 
 
-![[Pasted image 20261122195707.png]]
+![[expensive-lancaster.png]]
