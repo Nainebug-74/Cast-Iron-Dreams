@@ -1,15 +1,12 @@
-
-
-
-
-
 ---
-title: Griswold Manufacturing
+title: Griswold
 ---
+
+
 
 
 Location: Erie, Pennsylvania
-era: 1865-1970s
+era: 1865 -1970s
 
 # Griswold Manufacturing
 
