@@ -1,4 +1,4 @@
-![[slanted-logo.png]]
+
 
 
 
