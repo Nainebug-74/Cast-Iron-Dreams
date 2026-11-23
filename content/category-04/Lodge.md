@@ -13,9 +13,10 @@ Joseph Lodge partnered with the Blacklock foundry in 1896. In 1910 after a fire 
 
 ## Why Lodge is collectible
 
-1. They have produced high volumes of cookware, keeping their pieces affordable. They can often be found at yard sales, resale shops, estate sales, and resale shops.
-2. Distinctive marks/eras : Collectors track the shifts in markings and castings, such as the three heat ring skillets produced from the 1940s - 1970s/1980s. As well as the **Made in USA** stamps from the 1960s -1970s. Branded logos were added in the 1970s0-1980s.
-3. The discontinued and specialty runs are valued for their rarity and draw focused collectors for items such as the new American Road Trip Series celebrating America's 250th birthday.
+1. Lodge is the oldest cast iron cookware made in America. SUrviving when [[Griswold]] and [[Wagner]] could not in what can be an unpredictable economy.
+2. They have produced high volumes of cookware, keeping their pieces affordable. They can often be found at yard sales, resale shops, estate sales, and resale shops.
+3. Distinctive marks/eras : Collectors track the shifts in markings and castings, such as the three heat ring skillets produced from the 1940s - 1970s/1980s. As well as the **Made in USA** stamps from the 1960s -1970s. Branded logos were added in the 1970s0-1980s.
+4. The discontinued and specialty runs are valued for their rarity and draw focused collectors for items such as the new American Road Trip Series celebrating America's 250th birthday.
 
 ![[texas-pan.png]]
 
